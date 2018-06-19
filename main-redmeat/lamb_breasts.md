@@ -6,7 +6,8 @@ the roasting tin, turn them over in the pan juices from the roast – it will ad
 
 Serves 8-10
 
-spinach 300g
+*ingredients
+_spinach 300g_
 mint leaves 15
 spring onions 6
 olive oil 2 tbsp, plus a little more
