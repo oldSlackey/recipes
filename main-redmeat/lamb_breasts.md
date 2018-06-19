@@ -6,7 +6,7 @@ the roasting tin, turn them over in the pan juices from the roast – it will ad
 
 Serves 8-10
 
-**ingredients**  
+**Ingredients**  
 _spinach 300g  
 mint leaves 15  
 spring onions 6  
@@ -15,6 +15,7 @@ feta 200g
 lamb breasts 2, bones removed, approximately 1 kg each   
 peas 300g (podded weight)_
 
+**Method**  
 Set the oven at 200C/gas mark 6. Remove the stalks from the spinach
 and wash the leaves thoroughly under cold running water.
 The leaves still wet, pile them into a deep pan over a
